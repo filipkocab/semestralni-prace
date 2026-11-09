@@ -2,8 +2,7 @@
 
 Téma: Marketingová strategie mobilní aplikace
 
-jaké téma budete zpracovávat?
-Hana Vojáčková
+Odkaz na Dotazník: https://forms.cloud.microsoft/Pages/ResponsePage.aspx?id=ywHylzNlRkeWqt1SHnS5T_eC92omrhtCra_G7UCOEuBUOEFFR05TTzlBOTVPM0JGVVhTQUtPQjlYSC4u
 
 
 Dobrý den,
